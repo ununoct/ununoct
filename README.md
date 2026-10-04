@@ -3,8 +3,7 @@
 [Rentry](https://fluffle.cc/dolia)  ILY SHUBA ♡♡♡ (follow my goat [Shuba](https://github.com/adorelace))
 
 
-ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE (CARRD IS NOT MOBILE FRIENDLY BTW)
-
+ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE (remaking carrd atm
 Fear for your life to interact with me, often offtab so always w2i :3
 
 CURRENTLY GRINDING FOR TOP 100 ASIA UMBROSA (Used to be top 90 Philippines back then) (HMU IF YOU PLAY HOK 🤤🤤🤤)
