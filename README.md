@@ -5,6 +5,8 @@
 
 ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE 
 
+I follow  people who are my friends OR people i lowk wanna befriend
+
 Fear for your life to interact with me, often offtab so always w2i :3
 
 CURRENTLY GRINDING FOR TOP 100 ASIA UMBROSA (Used to be top 90 Philippines back then) (HMU IF YOU PLAY HOK 🤤🤤🤤)
