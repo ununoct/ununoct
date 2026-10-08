@@ -5,7 +5,7 @@
 
 ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE 
 
-I follow  people who are my friends OR people i lowk wanna befriend
+I follow  people who are my friends OR people i lowk wanna befriend (im scared of u guys, sorry)
 
 Fear for your life to interact with me, often offtab so always w2i :3
 
